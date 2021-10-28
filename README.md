@@ -6,6 +6,6 @@
 
 ***********************************************************************************************************
 
-feel free to fork, copy or add to the repo or message for any queries
+feel free to fork, copy or add to the repo or shoot a message for any queries
 
 ***********************************************************************************************************
